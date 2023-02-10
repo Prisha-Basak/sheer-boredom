@@ -1,2 +1,2 @@
 # sheer-boredom
-I mean............. why not-?
+I mean...... why not-?
